@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @mrspeedguy
+- 👀 I’m interested in Robotics
+- 🌱 I’m currently learning Robotics and python
+- 💞️ I’m looking to collaborate on nothing really
+- 📫 How to reach me, my email which is speedguy616@gmail.com
+- 😄 Pronouns: smart, funny, friendly
+- ⚡ Fun fact: I am interested about computer science
+- I am 10 years old
+- I am on a robotics team working on a reasearch project
