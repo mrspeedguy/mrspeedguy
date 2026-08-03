@@ -5,5 +5,5 @@
 - 📫 How to reach me, my email which is speedguy616@gmail.com
 - 😄 Pronouns: smart, funny, friendly
 - ⚡ Fun fact: I am interested about computer science
-- I am 10 years old
+- I am 12 years old
 - I am on a robotics team working on a reasearch project
